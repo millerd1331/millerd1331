@@ -2,7 +2,7 @@
 - 👀 I’m interested in airplanes, hiking, and photography
 - 🌱 I’m currently learning how to create my own learning application for the aviation sector
 - 💞️ I’m looking to collaborate on my learning application for the aviation sector
-- 📫 How to reach me (idk if you can reach me here, if you can, then go for it) if not, millerd1331@gmail.com works too :)
+- 📫 How to reach me (idk if you can reach me here, if you can, then go for it
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can do a pretty solid worm dance move
 
